@@ -1,0 +1,1 @@
+https://www.marketingandweb.es/marketing/herramientas-community-manager/
