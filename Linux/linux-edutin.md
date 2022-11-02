@@ -1,6 +1,6 @@
 # Curso de Linux en Edutin
 
-✰ 4.5 | 👤 14.084 | 💵 Gratis
+⭐ 4.5 | 👤 14.084 | 💵 Gratis
 
 ## Contenido
 
