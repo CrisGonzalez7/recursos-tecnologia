@@ -1,6 +1,6 @@
 # Curso de Git en Edutin
 
-✰ 4.7| 👤 5.555 | 💵 Gratis
+⭐ 4.7| 👤 5.555 | 💵 Gratis
 
 ## Contenido
 
